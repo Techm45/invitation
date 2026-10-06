@@ -1,4 +1,4 @@
-AYUSHI & SHOBIT — MOBILE INVITATION
+SHOBHIT & AYUSHI  — MOBILE INVITATION
 ====================================
 
 Files:
